@@ -36,7 +36,7 @@ Save energy eat together.
 I know circumstances make the best chef so cooking for yourself or for two or more almost same energy...
 so better to eat together or
 order food. Sometimes they have great deal on free delivery. That way you can save time, effort and energy.
-When ever they have these free delivery deal. I would always tipe the rider though. Thanks for reading!
+When ever they have these free delivery deal. I would always tip the rider though. Thanks for reading!
 Have fun analyzing your energy consumption. :]
 
 
