@@ -18,3 +18,9 @@ That said I don't think I won't have to worry about additional costs as the pred
 
 
 [ENGIE - Fluvius DATA ANALYSIS 2023](https://docs.google.com/spreadsheets/d/1pbG632t34n9r6gKwSt0QY27bi_hKJYLDwMLuGkyM2tU/edit#gid=994224908)
+
+ENGIE is my Energy provider
+FLUVIUS is the company that is resposible for counting my usage.
+
+ENGIE is resposible for delivering the energy from outside to the building. 
+FLUVIUS is responsible for the counting of the meters and the destribution within the building.
