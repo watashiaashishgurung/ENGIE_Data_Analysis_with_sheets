@@ -39,6 +39,12 @@ order food. Sometimes they have great deal on free delivery. That way you can sa
 When ever they have these free delivery deal. I would always tip the rider though. Thanks for reading!
 Have fun analyzing your energy consumption. :]
 
+Also don't worry to much about it.. Just see it as if you were driving a car. It's important to adjust your driving style to the engine your are driving in within the trafic rules.
+Also if you like to ride for the joy of sightseeing or enjoying your freedom. don't worry to much because even if you are a high gas consumer. If your Ecological footprint is around the average then you are still going the right direction.
+The whole economy is respects these standards and I noticed people who live as they say in the fastlane of life. Their ecological taxes are calculated accordingly.
+I just try to improve the accuracy of these calculations. For example.. eating bio products or using "green seat label while flying" attending car free sunday events at your local city and so on and so forth..
+
+cheers
 
 
 
