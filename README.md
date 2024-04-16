@@ -46,6 +46,6 @@ I just try to improve the accuracy of these calculations. For example.. eating b
 
 cheers
 You know personally I got injured during football practice and I had to put my ankle in plaster.. like I have a heavy foot..
-Since then It hurts when I push the gass paddle.. it's very sensitive.. anyways.. see you on the next one.. cheers
+Since then It hurts when I push the gass paddle.. it's very sensitive.. I feel like RoaRing! anyways.. see you on the next one.. cheers
 
 
