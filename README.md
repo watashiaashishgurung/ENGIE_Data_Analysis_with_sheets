@@ -45,6 +45,7 @@ The whole economy is respects these standards and I noticed people who live as t
 I just try to improve the accuracy of these calculations. For example.. eating bio products or using "green seat label while flying" attending car free sunday events at your local city and so on and so forth..
 
 cheers
-
+You know personally I got injured during football practice and I had to put my ankle in plaster.. like I have a heavy foot..
+Since then It hurts when I push the gass paddle.. it's very sensitive.. anyways.. see you on the next one.. cheers
 
 
