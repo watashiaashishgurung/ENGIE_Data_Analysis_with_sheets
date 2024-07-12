@@ -1,3 +1,13 @@
+# This case study is just to showcase my ability to interpret data. and my excel/ Google sheets skills for data analysis.
+Would you have thought that the gasprices fluxuates depending on the quality of the gass and the quality of your heating installation?
+I was curious why my energy bill never perfectly aligns with my forecasted energy costs. I managed to get money in return!
+
+PS: This is also apicable when buying a car or fueling any engine.
+
+Check out the link below to see how I managed to save energy and money!
+
+
+
 # energy-data-analysis
 personal energy consumption data analysis 2023
 **Visualizing my energy consumption (gas and electricity) living in a poorly isolated one bedroom apartment.**
