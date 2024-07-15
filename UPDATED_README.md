@@ -46,4 +46,4 @@ Thanks for reading! Have fun analyzing your energy consumption. Remember, just l
 
 ---
 
-**Personal Note:** I recently injured my ankle during football practice and had to put it in plaster. Since then, it's been sensitive, especially when pushing the gas pedal. I feel like roaring through the pain! Anyway, see you on the next one. Cheers!
+
